@@ -1,1 +1,0 @@
-# gag-h-scripty
